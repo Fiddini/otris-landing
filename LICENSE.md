@@ -80,8 +80,8 @@ Tidak ada download otomatis sebelum transfer. Ini menjaga gharar.
 Owner: Hanif Ahdi Fiddini
 Wakaf: Ayahanda Wijoyo Kusumo
 Keperluan: Pendidikan Cia & Lacita Wulansari
-WhatsApp: [ISI NOMOR WA AMBO DISINI]
-Email: [ISI EMAIL AMBO DISINI]
+WhatsApp: +62 82185559557
+Email: info@otris.id
 
 > "Ya Latif 125x - Lembutkanlah rezeki ini untuk anak-anak hamba, dan jadikanlah teknologi ini manfaat untuk ummat, bukan mudharat. Selesai 2 tahun, RS232 READY."
 
